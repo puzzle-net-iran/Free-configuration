@@ -1,0 +1,2 @@
+# Free-configuration
+کانفیگ رایگان
